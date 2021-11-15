@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @RushyamLR
 - 👀 I’m interested in videogames, mods and PS Vita
 - 🌱 I’m currently studying communication sciences
-- 💞️ I’m looking to collaborate on translations
+- 💞️ I’m looking to collaborate on English to Spanish translations
 - 📫 How to reach me: joseanquigo.qg@gmail.com
 
 <!---
